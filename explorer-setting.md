@@ -9,4 +9,6 @@
 
 ![image](https://github.com/winofsql/subject-windows11/assets/1501327/a6b95bab-6077-4f4a-8090-3a928d64d0aa)
 
-![image](https://github.com/winofsql/subject-windows11/assets/1501327/3aa5a53f-1a72-4bbe-9f3a-8894d5598ba5)
+![image](https://github.com/winofsql/subject-windows11/assets/1501327/595578e6-969a-4863-9e38-a40b13b14363)
+
+![image](https://github.com/winofsql/subject-windows11/assets/1501327/90f846d7-b3f5-498a-8abe-69d183b9f7a7)
